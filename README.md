@@ -1,4 +1,4 @@
-# Journal-week-2
+# Journal-week-2 
 
 As the last entry of my journal, the structure of it will be first about what I did in the week, the talks and meeting I had, and my opinion of them. Then, we'll get to the opinion I have of the videos that were due on this week! So, let's begin!
 
